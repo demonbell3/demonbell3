@@ -1,6 +1,8 @@
-" Think about the future, ***Val***, don't let *success break up the band*. "
+" ***YOU MOUTHY LITTLE MORTAL!*** "
 
-<img width="736" height="501" alt="image" src="https://github.com/user-attachments/assets/86bb15df-720f-4738-8141-b0338bddfb84" />
+<img width="303" height="303" alt="image" src="https://github.com/user-attachments/assets/6beb6f60-e110-40f3-9d10-9030fe698ad3" />
+
+
 
 
 
@@ -23,9 +25,11 @@
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/b44f85e7-e853-4c64-b61b-6e249a42962e" />
+<img width="303" height="302" alt="image" src="https://github.com/user-attachments/assets/b6e63df8-2c53-4d07-b2b4-dab70007a796" />
 
 
 
 
-"  *And if he* glows any *brighter*, will he see me **anymore**? "
+
+
+" ***Sloppy? Oh, when I get out of here, I will show you sloppy, you...*** "
