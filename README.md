@@ -1,9 +1,6 @@
-" ***YOU MOUTHY LITTLE MORTAL!*** "
+" ***Why don't you get it? Can't you get it? Understand.*** "
 
-<img width="303" height="303" alt="image" src="https://github.com/user-attachments/assets/6beb6f60-e110-40f3-9d10-9030fe698ad3" />
-
-
-
+<img width="736" height="981" alt="image" src="https://github.com/user-attachments/assets/74d97026-d668-4855-b856-864c4b58894a" />
 
 
 
@@ -25,11 +22,10 @@
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
 
-<img width="303" height="302" alt="image" src="https://github.com/user-attachments/assets/b6e63df8-2c53-4d07-b2b4-dab70007a796" />
+<img width="736" height="1104" alt="image" src="https://github.com/user-attachments/assets/2b9e57f4-c8be-46b0-88da-e2262f25d954" />
 
 
 
 
 
-
-" ***Sloppy? Oh, when I get out of here, I will show you sloppy, you...*** "
+" ***They're gonna execute the mother to elevate the man.*** "
