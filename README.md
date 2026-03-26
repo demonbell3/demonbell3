@@ -9,7 +9,7 @@
 
 ˚₊‧꒰ა *Ab*ou**t** *M*e ໒꒱ ‧₊˚
 
-╰⪼ *Non*-Sha**ring** *wo*lf**wo**od *an*d R*o*o yu**me**!
+╰⪼ *Pa*g**an** *-->* **At**he*na* , *Di*on**ys**us , **Li**l*ith* .
 
 *INT!* જ⁀➴୨ৎ : ***Staticmoth , Staticbelle , Chaggi/e , Rarepairs , The Vees , Horror Fans , Dinosaur nerds , Greek mythos , If your not in my dni !***
 
