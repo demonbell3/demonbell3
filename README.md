@@ -1,6 +1,8 @@
-" ***Why don't you get it? Can't you get it? Understand.*** "
+" ***I need him so much that it hurts,
+I wish he didn't have to go to work.*** "
 
-<img width="736" height="981" alt="image" src="https://github.com/user-attachments/assets/74d97026-d668-4855-b856-864c4b58894a" />
+<img width="435" height="543" alt="image" src="https://github.com/user-attachments/assets/6031024a-9e0c-4fbf-9260-f9f1dfb02f43" />
+
 
 
 
@@ -22,10 +24,10 @@
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
 
-<img width="736" height="1104" alt="image" src="https://github.com/user-attachments/assets/2b9e57f4-c8be-46b0-88da-e2262f25d954" />
+<img width="435" height="543" alt="image" src="https://github.com/user-attachments/assets/ac1e05c4-a899-410f-99e4-bd013b656fce" />
 
 
 
 
 
-" ***They're gonna execute the mother to elevate the man.*** "
+" ***He's my man, we're hand in hand, To hell and back** "
