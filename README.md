@@ -30,4 +30,4 @@ I wish he didn't have to go to work.*** "
 
 
 
-" ***He's my man, we're hand in hand, To hell and back** "
+" ***He's my man, we're hand in hand, To hell and back*** "
