@@ -24,7 +24,7 @@ I wish he didn't have to go to work.*** "
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
 
-<img width="435" height="543" alt="image" src="https://github.com/user-attachments/assets/ac1e05c4-a899-410f-99e4-bd013b656fce" />
+<img width="500" height="543" alt="image" src="https://github.com/user-attachments/assets/ac1e05c4-a899-410f-99e4-bd013b656fce" />
 
 
 
