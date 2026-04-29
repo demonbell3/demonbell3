@@ -1,7 +1,7 @@
 " ***I need him so much that it hurts,
 I wish he didn't have to go to work.*** "
 
-<img width="435" height="543" alt="image" src="https://github.com/user-attachments/assets/6031024a-9e0c-4fbf-9260-f9f1dfb02f43" />
+<img width="435" height="435" alt="image" src="https://github.com/user-attachments/assets/6031024a-9e0c-4fbf-9260-f9f1dfb02f43" />
 
 
 
@@ -24,7 +24,7 @@ I wish he didn't have to go to work.*** "
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
 
-<img width="435" height="543" alt="image" src="https://github.com/user-attachments/assets/ac1e05c4-a899-410f-99e4-bd013b656fce" />
+<img width="435" height="435" alt="image" src="https://github.com/user-attachments/assets/ac1e05c4-a899-410f-99e4-bd013b656fce" />
 
 
 
