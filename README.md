@@ -17,7 +17,7 @@ I wish he didn't have to go to work.*** "
 
 *IWC!* જ⁀➴୨ৎ : **Radiostatic , Hellaverse Fandom , Epic Fandom , MalGrant, PJO Fandom , Dandy's World ,  + more !**
 
-*DNI!* જ⁀➴୨ৎ : *Valdust/Valangel , Polyvees , Radioapple , Vees fans that SUPPORT their actions , Proshippers , Basic dni , epic fans that use it as a source , people who force their religons onto others , Roleplay (DNIUF or Non-serious roleplay) , will add more !*
+*DNI!* જ⁀➴୨ৎ : *Valdust/Valangel , Polyvees , Radioapple , Val, Vel and Vox fans that SUPPORT their actions , Proshippers , Basic dni , epic fans that use it as a source , people who force their religons onto others , Roleplay (DNIUF or Non-serious roleplay) , will add more !*
 
 *FICTKINS!* જ⁀➴୨ৎ : ***Charlie Morningstar , Asuka Langley , Octavia Goetia , Sua , Jinx , The Girl , Misa Amane !*** ( !! Kin doubles dni or iwec !! )
 
