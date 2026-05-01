@@ -1,8 +1,7 @@
-" ***I need him so much that it hurts,
-I wish he didn't have to go to work.*** "
+" ***What's an overlord to a deity?
+They ain't got a prayer!*** "
 
-<img width="435" height="435" alt="image" src="https://github.com/user-attachments/assets/6031024a-9e0c-4fbf-9260-f9f1dfb02f43" />
-
+<img width="435" height="435" alt="image" src="https://github.com/user-attachments/assets/90ed9f92-b2e0-4b74-bc0d-3d2af9df4a0c" />
 
 
 
@@ -24,10 +23,10 @@ I wish he didn't have to go to work.*** "
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
 
-<img width="435" height="435" alt="image" src="https://github.com/user-attachments/assets/ac1e05c4-a899-410f-99e4-bd013b656fce" />
+<img width="435" height="435" alt="image" src="https://github.com/user-attachments/assets/098488ba-7070-466f-ac4e-57ba9de0b9d3" />
 
 
 
 
 
-" ***He's my man, we're hand in hand, To hell and back*** "
+" ***We'll rule the sky from up on high!*** "
