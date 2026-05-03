@@ -20,7 +20,7 @@ They ain't got a prayer!*** "
 
 *FICTKINS!* જ⁀➴୨ৎ : ***Charlie Morningstar , Asuka Langley , Octavia Goetia , Sua , Jinx , The Girl , Misa Amane !*** ( !! Kin doubles dni or iwec !! )
 
-*COMFORT CHARACTERS!* જ⁀➴୨ৎ : **The Vees , Lilith , Lucifer , Indominus Rex , Ellie Sattler , Low & Alone , Aubrey , Clémente Dearworth !**
+*COMFORT CHARACTERS!* જ⁀➴୨ৎ : **The Vees , Lilith , Lucifer , Indominus Rex , Ellie Sattler , Low & Alone , Aubrey , Clémente Dearworth , Alastor !**
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
 
