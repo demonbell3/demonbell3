@@ -24,7 +24,13 @@ They ain't got a prayer!*** "
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-*BYI !* જ⁀➴ : *Don't flirt or jokingly flirt with me if were not friends or your not my gf. | I get upset easily so watch what you say and do, so if I move away, it's most likely so I can calm down. | I block freely, so if your on my DNI or such I will not hesitate to block if you try to int. | I can be very hyper and extrovert most of the time, so iwc if you get overwhelmed by this easily.*
+*BYI !* જ⁀➴ : *Don't flirt or jokingly flirt with me if were not friends or your not my gf.* 
+
+*I get upset easily so watch what you say and do, so if I move away, it's most likely so I can calm down.* 
+
+*I block freely, so if your on my DNI or such I will not hesitate to block if you try to int.*
+
+*I can be very hyper and extrovert most of the time, so iwc if you get overwhelmed by this easily.*
 
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
