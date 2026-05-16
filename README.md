@@ -24,7 +24,7 @@ They ain't got a prayer!*** "
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-*BYI !* જ⁀➴ : *Don't flirt or jokingly flirt with me if were not friends or your not my gf.* 
+*BYI !* જ⁀➴ : *Don't flirt or jokingly flirt with me if were not friends or your not my partner.* 
 
 *I get upset easily so watch what you say and do, so if I move away, it's most likely so I can calm down.* 
 
