@@ -18,7 +18,7 @@ They ain't got a prayer!*** "
 
 *DNI!* જ⁀➴୨ৎ : *Valdust/Valangel , Polyvees , Radioapple , Val, Vel and Vox fans that SUPPORT their actions , Proshippers , Basic dni , epic fans that use it as a source , people who force their religons onto others , Roleplay (DNIUF or Non-serious roleplay) , will add more !*
 
-*FICTKINS!* જ⁀➴୨ৎ : ***Charlie Morningstar , Asuka Langley , Octavia Goetia , Sua , Jinx , The Girl , Misa Amane !*** ( !! Kin doubles dni or iwec !! )
+*FICTKINS!* જ⁀➴୨ৎ : ***Charlie Morningstar , Asuka Langley , Octavia Goetia , Valentino , Sua , Jinx , The Girl , Misa Amane !*** ( !! Kin doubles dni or iwec !! )
 
 *COMFORT CHARACTERS!* જ⁀➴୨ৎ : **The Vees , Lilith , Lucifer , Indominus Rex , Ellie Sattler , Low & Alone , Aubrey , Clémente Dearworth , Alastor !**
 
