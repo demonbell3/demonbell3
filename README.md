@@ -1,7 +1,7 @@
-" ***What's an overlord to a deity?
-They ain't got a prayer!*** "
+" ***𝓣𝓻𝓾𝓼𝓽 𝓲𝓼 𝓯𝓸𝓻 𝓯𝓸𝓸𝓵𝓼. 𝓕𝓮𝓪𝓻 𝓲𝓼 𝓽𝓱𝓮 𝓸𝓷𝓵𝔂 𝓻𝓮𝓵𝓲𝓪𝓫𝓵𝓮 𝔀𝓪𝔂*** "
 
-<img width="435" height="435" alt="image" src="https://github.com/user-attachments/assets/90ed9f92-b2e0-4b74-bc0d-3d2af9df4a0c" />
+<img width="640" height="474" alt="azula-avatar" src="https://github.com/user-attachments/assets/688ab5d9-a2ec-451e-bfb7-c3b23e5c750e" />
+
 
 
 
@@ -35,10 +35,9 @@ They ain't got a prayer!*** "
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
 
-<img width="435" height="435" alt="image" src="https://github.com/user-attachments/assets/098488ba-7070-466f-ac4e-57ba9de0b9d3" />
+<img width="640" height="474" alt="azula" src="https://github.com/user-attachments/assets/d19c7264-11b6-4786-b0b3-02e726d607d7" />
 
 
 
 
-
-" ***We'll rule the sky from up on high!*** "
+" ***𝓝𝓸, 𝓨𝓞𝓤 𝓶𝓲𝓼𝓬𝓪𝓵𝓬𝓾𝓵𝓪𝓽𝓮𝓭! 𝓨𝓸𝓾 𝓼𝓱𝓸𝓾𝓵𝓭 𝓱𝓪𝓿𝓮 𝓯𝓮𝓪𝓻𝓮𝓭 𝓶𝓮 𝓶𝓸𝓻𝓮!*** "
