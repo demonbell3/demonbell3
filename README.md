@@ -1,6 +1,6 @@
 " ***𝓣𝓻𝓾𝓼𝓽 𝓲𝓼 𝓯𝓸𝓻 𝓯𝓸𝓸𝓵𝓼. 𝓕𝓮𝓪𝓻 𝓲𝓼 𝓽𝓱𝓮 𝓸𝓷𝓵𝔂 𝓻𝓮𝓵𝓲𝓪𝓫𝓵𝓮 𝔀𝓪𝔂*** "
 
-<img width="640" height="474" alt="azula-avatar" src="https://github.com/user-attachments/assets/688ab5d9-a2ec-451e-bfb7-c3b23e5c750e" />
+<img width="640" height="350" alt="azula-avatar" src="https://github.com/user-attachments/assets/688ab5d9-a2ec-451e-bfb7-c3b23e5c750e" />
 
 
 
@@ -35,7 +35,7 @@
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
 
 
-<img width="640" height="474" alt="azula" src="https://github.com/user-attachments/assets/d19c7264-11b6-4786-b0b3-02e726d607d7" />
+<img width="640" height="350" alt="azula" src="https://github.com/user-attachments/assets/d19c7264-11b6-4786-b0b3-02e726d607d7" />
 
 
 
