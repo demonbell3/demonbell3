@@ -1,4 +1,4 @@
-⚡ : " ***𝓣𝓻𝓾𝓼𝓽 𝓲𝓼 𝓯𝓸𝓻 𝓯𝓸𝓸𝓵𝓼. 𝓕𝓮𝓪𝓻 𝓲𝓼 𝓽𝓱𝓮 𝓸𝓷𝓵𝔂 𝓻𝓮𝓵𝓲𝓪𝓫𝓵𝓮 𝔀𝓪𝔂*** "
+" ***𝓣𝓻𝓾𝓼𝓽 𝓲𝓼 𝓯𝓸𝓻 𝓯𝓸𝓸𝓵𝓼. 𝓕𝓮𝓪𝓻 𝓲𝓼 𝓽𝓱𝓮 𝓸𝓷𝓵𝔂 𝓻𝓮𝓵𝓲𝓪𝓫𝓵𝓮 𝔀𝓪𝔂*** "
 
 <img width="640" height="350" alt="azula-avatar" src="https://github.com/user-attachments/assets/688ab5d9-a2ec-451e-bfb7-c3b23e5c750e" />
 
@@ -10,21 +10,21 @@
 
 ˚₊‧꒰ა *Ab*ou**t** *M*e ໒꒱ ‧₊˚
 
-💙 : ╰⪼ *Pa*g**an** *-->* **At**he*na* , *Di*on**ys**us , **Li**l*ith* .
+╰⪼ *Pa*g**an** *-->* **At**he*na* , *Di*on**ys**us , **Li**l*ith* .
 
-👑 : *INT!* જ⁀➴୨ৎ : ***Staticmoth , Staticbelle , Chaggi/e , Rarepairs , The Vees , Horror Fans , Dinosaur nerds , Greek mythos , If your not in my dni !***
+*INT!* જ⁀➴୨ৎ : ***Staticmoth , Staticbelle , Chaggi/e , Rarepairs , The Vees , Horror Fans , Dinosaur nerds , Greek mythos , If your not in my dni !***
 
-💙 : *IWC!* જ⁀➴୨ৎ : **Hellaverse Fandom , Epic Fandom , MalGrant, PJO Fandom , Dandy's World ,  + more !**
+*IWC!* જ⁀➴୨ৎ : **Hellaverse Fandom , Epic Fandom , MalGrant, PJO Fandom , Dandy's World ,  + more !**
 
-👑 : *DNI!* જ⁀➴୨ৎ : *Valdust/Valangel , Polyvees , Radioapple (unless qpr or friend) , Val, Vel and Vox fans that SUPPORT their actions , Proshippers , Basic dni , epic fans that use it as a source , people who force their religons onto others , Roleplay (DNIUF or Non-serious roleplay) , will add more !*
+*DNI!* જ⁀➴୨ৎ : *Valdust/Valangel , Polyvees , Radioapple (unless qpr or friend) , Val, Vel and Vox fans that SUPPORT their actions , Proshippers , Basic dni , epic fans that use it as a source , people who force their religons onto others , Roleplay (DNIUF or Non-serious roleplay) , will add more !*
 
-💙 : *FICTKINS!* જ⁀➴୨ৎ : ***Charlie Morningstar , Asuka Langley, Azula , Octavia Goetia , Valentino , Sua , Jinx , The Girl , Misa Amane !*** ( !! Kin doubles dni or iwec !! )
+*FICTKINS!* જ⁀➴୨ৎ : ***Charlie Morningstar , Asuka Langley, Azula , Octavia Goetia , Valentino , Sua , Jinx , The Girl , Misa Amane !*** ( !! Kin doubles dni or iwec !! )
 
-👑 : *COMFORT CHARACTERS!* જ⁀➴୨ৎ : **The Vees , Lilith , Lucifer , Indominus Rex , Ellie Sattler , Low & Alone , Aubrey , Clémente Dearworth , Alastor !**
+*COMFORT CHARACTERS!* જ⁀➴୨ৎ : **The Vees , Lilith , Lucifer , Indominus Rex , Ellie Sattler , Low & Alone , Aubrey , Clémente Dearworth , Alastor !**
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
-💙 : *BYI !* જ⁀➴ : *Don't flirt or jokingly flirt with me if were not friends or your not my partner.* 
+*BYI !* જ⁀➴ : *Don't flirt or jokingly flirt with me if were not friends or your not my partner.* 
 
 *I get upset easily so watch what you say and do, so if I move away, it's most likely so I can calm down.* 
 
@@ -40,4 +40,4 @@
 
 
 
-🔥 : " ***𝓝𝓸, 𝓨𝓞𝓤 𝓶𝓲𝓼𝓬𝓪𝓵𝓬𝓾𝓵𝓪𝓽𝓮𝓭! 𝓨𝓸𝓾 𝓼𝓱𝓸𝓾𝓵𝓭 𝓱𝓪𝓿𝓮 𝓯𝓮𝓪𝓻𝓮𝓭 𝓶𝓮 𝓶𝓸𝓻𝓮!*** "
+" ***𝓝𝓸, 𝓨𝓞𝓤 𝓶𝓲𝓼𝓬𝓪𝓵𝓬𝓾𝓵𝓪𝓽𝓮𝓭! 𝓨𝓸𝓾 𝓼𝓱𝓸𝓾𝓵𝓭 𝓱𝓪𝓿𝓮 𝓯𝓮𝓪𝓻𝓮𝓭 𝓶𝓮 𝓶𝓸𝓻𝓮!*** "
