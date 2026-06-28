@@ -1,8 +1,6 @@
 🌈 : " ***𝓣𝓻𝓾𝓼𝓽 𝓲𝓼 𝓯𝓸𝓻 𝓯𝓸𝓸𝓵𝓼. 𝓕𝓮𝓪𝓻 𝓲𝓼 𝓽𝓱𝓮 𝓸𝓷𝓵𝔂 𝓻𝓮𝓵𝓲𝓪𝓫𝓵𝓮 𝔀𝓪𝔂*** "
 
-<img width="640" height="350" alt="azula-avatar" src="https://github.com/user-attachments/assets/688ab5d9-a2ec-451e-bfb7-c3b23e5c750e" />
-
-
+<img width="400" height="420" alt="image" src="https://github.com/user-attachments/assets/9ecb7565-9867-465f-b0c1-58b6f7710e8f" />
 
 
 ────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ────────୨ৎ
