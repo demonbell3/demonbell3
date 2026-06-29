@@ -8,6 +8,7 @@
 
 <img width="438" height="271" alt="staticbelle-vox" src="https://github.com/user-attachments/assets/1ba2562b-854f-43f3-b2af-1a7a6bdfd65e" />
 
+" <sup>ʙᴜᴛ ʜᴏᴡ 'ʙᴏᴜᴛ ᴏɴᴇ ʟᴀꜱᴛ Qᴜᴇꜱᴛɪᴏɴ ꜰᴏʀ ᴛʜᴇ ʀᴏᴀᴅ, ᴘʀɪɴᴄᴇꜱꜱ? ᴅᴏ ʏᴏᴜ ᴛʜɪɴᴋ ɪ ᴄᴏᴜʟᴅ ʙᴇ ʀᴇᴅᴇᴇᴍᴇᴅ?</sup> "
 
 ━━━━━☆━━━━━━━━━━☆━━━━━━━━━━☆
 
@@ -28,6 +29,8 @@
 ɪ ᴄᴀɴ ʙᴇ ᴠᴇʀʏ ʜʏᴘᴇʀ ᴀɴᴅ ᴇxᴛʀᴏᴠᴇʀᴛ ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ, ꜱᴏ ɪᴡᴄ ɪꜰ ʏᴏᴜ ɢᴇᴛ ᴏᴠᴇʀᴡʜᴇʟᴍᴇᴅ ʙʏ ᴛʜɪꜱ ᴇᴀꜱɪʟʏ.
 
 <img width="438" height="271" alt="staticbelle-vox" src="https://github.com/user-attachments/assets/84f652ae-de8a-4253-8b7e-ca6e6f7284ab" />
+
+" <sup>ʏᴏᴜ ᴀʀᴇ ᴀ ʙᴀᴅ ɢɪʀʟ, ʙᴀᴅ ɢɪʀʟ ᴡʜᴀᴛ ʏᴏᴜ ɢᴏɴɴᴀ ᴅᴏ ɴᴏᴡ? 'ᴄᴀᴜꜱᴇ ᴇᴠᴇʀʏʙᴏᴅʏ ꜱᴇᴇ ᴡʜᴀᴛ ʏᴏᴜ ʜɪᴅᴇ.</sup> "
 
 
 ━━━━━☆━━━━━━━━━━☆━━━━━━━━━━☆
@@ -62,6 +65,7 @@
 
 <img width="438" height="271" alt="staticbelle-vox" src="https://github.com/user-attachments/assets/281cffa1-ca3d-4f6d-a9a1-c59cdcd0417c" />
 
+" <sup>ɪ ʙᴇʟɪᴇᴠᴇ ᴀɴʏᴏɴᴇ ᴄᴀɴ ʙᴇ ʀᴇᴅᴇᴇᴍᴇᴅ.</sup> "
 
 ━━━━━☆━━━━━━━━━━☆━━━━━━━━━━☆
 
