@@ -6,7 +6,7 @@
 
 📺 : " ᴘᴀɢᴀɴ ⟢ ᴀᴛʜᴇɴᴀ , ʟɪʟɪᴛʜ & ᴅɪᴏɴʏꜱᴜꜱ ! "
 
-<img width="310" height="280" alt="staticbelle-vox" src="https://github.com/user-attachments/assets/325171e1-0726-492f-8f87-6eeb0a710676" />
+<img width="438" height="271" alt="staticbelle-vox" src="https://github.com/user-attachments/assets/1ba2562b-854f-43f3-b2af-1a7a6bdfd65e" />
 
 
 ━━━━━☆━━━━━━━━━━☆━━━━━━━━━━☆
