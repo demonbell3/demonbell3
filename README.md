@@ -6,6 +6,8 @@
 
 📺 : ᴘᴀɢᴀɴ ⟢ ᴀᴛʜᴇɴᴀ , ʟɪʟɪᴛʜ & ᴅɪᴏɴʏꜱᴜꜱ ! "
 
+💖 : ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ⟢ @pt-walk-of-fame
+
 <img width="438" height="271" alt="staticbelle-vox" src="https://github.com/user-attachments/assets/1ba2562b-854f-43f3-b2af-1a7a6bdfd65e" />
 
 " <sup>ʙᴜᴛ ʜᴏᴡ 'ʙᴏᴜᴛ ᴏɴᴇ ʟᴀꜱᴛ Qᴜᴇꜱᴛɪᴏɴ ꜰᴏʀ ᴛʜᴇ ʀᴏᴀᴅ, ᴘʀɪɴᴄᴇꜱꜱ? ᴅᴏ ʏᴏᴜ ᴛʜɪɴᴋ ɪ ᴄᴏᴜʟᴅ ʙᴇ ʀᴇᴅᴇᴇᴍᴇᴅ?</sup> "
