@@ -6,7 +6,7 @@
 
 📺 : ᴘᴀɢᴀɴ ⟢ ᴀᴛʜᴇɴᴀ , ʟɪʟɪᴛʜ & ᴅɪᴏɴʏꜱᴜꜱ ! "
 
-💖 : ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ⟢ [pt-walk-of-fame]( https://github.com/pt-walk-of-fame ) & [title-town](https://github.com/title-town)
+💖 : ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ⟢ [pt-walk-of-fame]( https://github.com/pt-walk-of-fame ) [title-town](https://github.com/title-town)
 
 <img width="438" height="271" alt="staticbelle-vox" src="https://github.com/user-attachments/assets/1ba2562b-854f-43f3-b2af-1a7a6bdfd65e" />
 
