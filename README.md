@@ -63,6 +63,8 @@
 
 ⬩➤ ʟɪꜱᴀ ᴛᴇᴘᴇꜱ ( ꜱᴇʟᴇᴄᴛɪᴠᴇ - ꜱʜᴀʀɪɴɢ )
 
+⬩➤ ᴇᴜʀʏᴅɪᴄᴇ ( ꜱᴇʟᴇᴄᴛɪᴠᴇ/ɴᴏɴ - ꜱʜᴀʀɪɴɢ )
+
 
 
 <img width="438" height="271" alt="staticbelle-vox" src="https://github.com/user-attachments/assets/281cffa1-ca3d-4f6d-a9a1-c59cdcd0417c" />
