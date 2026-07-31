@@ -67,6 +67,7 @@
 
 ⬩➤ ᴇᴜʀʏᴅɪᴄᴇ ( ꜱᴏꜰᴛ - ꜱʜᴀʀɪɴɢ )
 
+⬩➤ ᴇʟʟɪᴇ ʙɪxʟᴇʀ ( ʜʏᴘᴇʀ - ꜱʜᴀʀɪɴɢ )
 
 
 <img width="498" height="281" alt="fanning-persephone" src="https://github.com/user-attachments/assets/b739138f-8eeb-46f4-97a0-7179a4914639" />
