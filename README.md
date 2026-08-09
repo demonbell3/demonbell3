@@ -6,7 +6,7 @@
 
 🔥 : ᴘᴀɢᴀɴ ⟢ ᴀᴛʜᴇɴᴀ , ʟɪʟɪᴛʜ & ᴅɪᴏɴʏꜱᴜꜱ ! "
 
-💖 : ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ & ᴠᴀɢɢɪ'ꜱ #1 ꜰᴀɴ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ⟢ [pt-walk-of-fame]( https://github.com/pt-walk-of-fame ) [title-town](https://github.com/title-town) [pt-contributers](https://github.com/pt-contributers) [pt-hall-of-media](https://github.com/pt-hall-of-media) [fans-town](https://github.com/fans-town)
+💖 : ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ & ᴠᴀɢɢɪ'ꜱ #1 ꜰᴀɴ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ⟢ [pt-walk-of-fame]( https://github.com/pt-walk-of-fame ) [title-town](https://github.com/title-town) [pt-contributers](https://github.com/pt-contributers) [pt-hall-of-media](https://github.com/pt-hall-of-media) [fans-town](https://github.com/fans-town) [YUME-TOWN](https://github.com/ponytownyumeshippers)
 
 <img width="498" height="281" alt="holding-hands-hades" src="https://github.com/user-attachments/assets/b925e5d8-72e6-4e0f-82bb-24a2567c8784" />
 
