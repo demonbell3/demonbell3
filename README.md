@@ -89,7 +89,7 @@
 <img width="498" height="281" alt="vox-vox-hazbin" src="https://github.com/user-attachments/assets/18a4fff4-696c-45ec-b843-c411e789cf21" />
 
 
-" <sup>ᴀɴᴅ ɪꜰ ʜᴇ ɢʟᴏᴡꜱ ᴀɴʏ ʙʀɪɢʜᴛᴇʀ ᴡɪʟʟ ʜᴇ ꜱᴇᴇ ᴍᴇ ᴀɴʏᴍᴏʀᴇ?</sup> "
+" <sup>ᴀɴᴅ ɪꜰ ʜᴇ ɢʟᴏᴡꜱ ᴀɴʏ ʙʀɪɢʜᴛᴇʀ, ᴡɪʟʟ ʜᴇ ꜱᴇᴇ ᴍᴇ ᴀɴʏᴍᴏʀᴇ?</sup> "
 
 ━━━━━☆━━━━━━━━━━☆━━━━━━━━━━☆
 
