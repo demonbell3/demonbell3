@@ -10,7 +10,7 @@
 
 <img width="498" height="307" alt="hazbin-hotel-voxval" src="https://github.com/user-attachments/assets/c9f0e973-b2ce-4173-abbb-f1a8ebc6235e" />
 
-" <sup>ᴠᴀʟ, ᴅᴏɴ'ᴛ ʙᴇ ᴅʀᴀᴍᴀᴛɪᴄ ʜᴇ'ꜱ ᴊᴜꜱᴛ ᴀ ᴍᴀɴ!</sup> "
+" <sup>ᴠᴀʟ, ᴅᴏɴ'ᴛ ʙᴇ ᴅʀᴀᴍᴀᴛɪᴄ, ʜᴇ'ꜱ ᴊᴜꜱᴛ ᴀ ᴍᴀɴ!</sup> "
 
 ━━━━━☆━━━━━━━━━━☆━━━━━━━━━━☆
 
