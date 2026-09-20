@@ -8,7 +8,7 @@
 
 ♡ : ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ & ᴠᴀɢɢɪ'ꜱ #1 ꜰᴀɴ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ⟢ [pt-walk-of-fame]( https://github.com/pt-walk-of-fame ) [title-town](https://github.com/title-town) [pt-contributers](https://github.com/pt-contributers) [pt-hall-of-media](https://github.com/pt-hall-of-media) [fans-town](https://github.com/fans-town) [YUME-TOWN](https://github.com/ponytownyumeshippers) [cosplaytown](https://github.com/ponytownyumeshippers](https://github.com/cosplaytown))
 
-<img width="498" height="307" alt="hazbin-hotel-voxval" src="https://github.com/user-attachments/assets/c9f0e973-b2ce-4173-abbb-f1a8ebc6235e" />
+<img width="1199" height="707" alt="image" src="https://github.com/user-attachments/assets/a4cabd0a-0572-4c59-8195-d81bb1fb8dd0" />
 
 " <sup>ᴠᴀʟ, ᴅᴏɴ'ᴛ ʙᴇ ᴅʀᴀᴍᴀᴛɪᴄ, ʜᴇ'ꜱ ᴊᴜꜱᴛ ᴀ ᴍᴀɴ!</sup> "
 
@@ -31,7 +31,7 @@
 ɪ ᴄᴀɴ ʙᴇ ᴠᴇʀʏ ʜʏᴘᴇʀ ᴀɴᴅ ᴇxᴛʀᴏᴠᴇʀᴛ ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ, ꜱᴏ ɪᴡᴄ ɪꜰ ʏᴏᴜ ɢᴇᴛ ᴏᴠᴇʀᴡʜᴇʟᴍᴇᴅ ʙʏ ᴛʜɪꜱ ᴇᴀꜱɪʟʏ.
 
 
-<img width="498" height="281" alt="vox-val" src="https://github.com/user-attachments/assets/2f9c61a0-23d9-4f90-a191-3a8547bc3d04" />
+<img width="1199" height="707" alt="image" src="https://github.com/user-attachments/assets/92a03074-7e9b-4cb7-b035-6832b40a74c1" />
 
 
 " <sup> ᴛʜᴀᴛ ʟᴇᴀᴠᴇꜱ ʀᴏᴏᴍ ꜰᴏʀ ʏᴏᴜ ᴀɴᴅ ᴍᴇ, ᴛʜᴇ ꜰᴜᴛᴜʀᴇ ᴏꜰ ʜᴇʟʟ ʙᴇʟᴏɴɢꜱ ᴛᴏ ᴛʜᴇ ᴠᴇᴇꜱ!!</sup> "
@@ -86,7 +86,7 @@
 ⬩➤ ɪɴᴅᴏᴍɪɴᴜꜱ ʀᴇx ( ꜱʜᴀʀɪɴɢ : ꜰᴀᴍɪʟɪᴀʟ ʏᴜᴍᴇ )
 
 
-<img width="498" height="281" alt="vox-vox-hazbin" src="https://github.com/user-attachments/assets/18a4fff4-696c-45ec-b843-c411e789cf21" />
+<img width="1199" height="707" alt="image" src="https://github.com/user-attachments/assets/dba3aa0c-1c20-4f87-be60-b553cb63cc73" />
 
 
 " <sup>ᴀɴᴅ ɪꜰ ʜᴇ ɢʟᴏᴡꜱ ᴀɴʏ ʙʀɪɢʜᴛᴇʀ, ᴡɪʟʟ ʜᴇ ꜱᴇᴇ ᴍᴇ ᴀɴʏᴍᴏʀᴇ?</sup> "
