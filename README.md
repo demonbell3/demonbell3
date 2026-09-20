@@ -10,7 +10,7 @@
 
 <img width="427" height="285" alt="image" src="https://github.com/user-attachments/assets/a4cabd0a-0572-4c59-8195-d81bb1fb8dd0" />
 
-" <sup>ᴠᴀʟ, ᴅᴏɴ'ᴛ ʙᴇ ᴅʀᴀᴍᴀᴛɪᴄ, ʜᴇ'ꜱ ᴊᴜꜱᴛ ᴀ ᴍᴀɴ!</sup> "
+" <sup>ᴛʜᴇ ʙᴇꜱᴛ ᴍᴇᴅɪᴄɪɴᴇ... ᴛᴀꜱᴛᴇꜱ ꜱᴡᴇᴇᴛ ɪɴ ʏᴏᴜʀ ᴍᴏᴜᴛʜ !</sup> "
 
 ━━━━━☆━━━━━━━━━━☆━━━━━━━━━━☆
 
@@ -34,7 +34,7 @@
 <img width="427" height="285" alt="image" src="https://github.com/user-attachments/assets/92a03074-7e9b-4cb7-b035-6832b40a74c1" />
 
 
-" <sup> ᴛʜᴀᴛ ʟᴇᴀᴠᴇꜱ ʀᴏᴏᴍ ꜰᴏʀ ʏᴏᴜ ᴀɴᴅ ᴍᴇ, ᴛʜᴇ ꜰᴜᴛᴜʀᴇ ᴏꜰ ʜᴇʟʟ ʙᴇʟᴏɴɢꜱ ᴛᴏ ᴛʜᴇ ᴠᴇᴇꜱ!!</sup> "
+" <sup>ʜᴏᴡ ᴅᴀʀᴇ ʏᴏᴜ ᴛʜʀᴇᴀᴛᴇɴ ʜɪꜱ ᴍᴀᴊᴇꜱᴛʏ'ꜱ ʀɪɢʜᴛ ʜᴀɴᴅ ?!!</sup> "
 
 
 ━━━━━☆━━━━━━━━━━☆━━━━━━━━━━☆
@@ -89,7 +89,7 @@
 <img width="427" height="285" alt="image" src="https://github.com/user-attachments/assets/b661d5c5-0a41-45e3-b628-e8ff32422122" />
 
 
-" <sup>ᴀɴᴅ ɪꜰ ʜᴇ ɢʟᴏᴡꜱ ᴀɴʏ ʙʀɪɢʜᴛᴇʀ, ᴡɪʟʟ ʜᴇ ꜱᴇᴇ ᴍᴇ ᴀɴʏᴍᴏʀᴇ?</sup> "
+" <sup>ᴍʏ ʟɪᴇɢᴇ, ɪ ᴅɪᴅ ᴍʏ ʙᴇꜱᴛ !</sup> "
 
 ━━━━━☆━━━━━━━━━━☆━━━━━━━━━━☆
 
