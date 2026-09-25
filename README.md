@@ -4,7 +4,7 @@
 
 ♡ : ꜱᴇxᴜᴀʟɪᴛʏ & ʀᴇʟᴀᴛɪᴏɴꜱʜɪᴘ ꜱᴛᴀᴛᴜꜱ ⟢ ʙɪꜱᴇxᴜᴀʟ ᴡɪᴛʜ ᴀ ᴘʀᴇꜰ ꜰᴏʀ ᴡᴏᴍᴇɴ , ʜᴀᴘᴘɪʟʏ ᴛᴀᴋᴇɴ ʙʏ <ᴊ3 !
 
-♡ : ᴘᴀɢᴀɴ ⟢ ᴀᴛʜᴇɴᴀ , ʟɪʟɪᴛʜ & ᴅɪᴏɴʏꜱᴜꜱ ! "
+♡ : ᴘᴀɢᴀɴ ⟢ ᴀᴛʜᴇɴᴀ , ʟɪʟɪᴛʜ , ᴄɪʀᴄᴇ & ᴅɪᴏɴʏꜱᴜꜱ ! "
 
 ♡ : ᴘᴏɴʏ ᴛᴏᴡɴ'ꜱ ᴄʜᴀʀʟɪᴇ ᴍᴏʀɴɪɴɢꜱᴛᴀʀ & ᴠᴀɢɢɪ'ꜱ #1 ꜰᴀɴ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ⟢ [pt-walk-of-fame]( https://github.com/pt-walk-of-fame ) [title-town](https://github.com/title-town) [pt-contributers](https://github.com/pt-contributers) [pt-hall-of-media](https://github.com/pt-hall-of-media) [fans-town](https://github.com/fans-town) [YUME-TOWN](https://github.com/ponytownyumeshippers) [cosplaytown](https://github.com/ponytownyumeshippers](https://github.com/cosplaytown))
 
