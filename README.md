@@ -6,7 +6,7 @@
 
 <p align="center">bisexual w women pref  ୨ৎ  genderfluid</p>
 
-<p align="center">pagan  ୨ৎ  Lady Athena, Lord Dionysus, Lady Lilith, Lady Circe</p>
+<p align="center">pagan  ୨ৎ  Lady Athena , Lord Dionysus , Lady Lilith , Lady Circe</p>
 
 <div align="center">
 
@@ -15,3 +15,10 @@
 
 </div>
 
+_________
+
+<p align="center">dni / int / iwc</p>
+
+<p align="center">int ୨ৎ staticmoth , staticmoth , chaggi , rarepairs , vees fans , horror fans , dinosaur nerds , greek/jewish mythos , not in my dni</p>
+
+<p align="center">dni ୨ৎ valangel , polyvees , radioapple , vees supporters ( goes for other hazbin characters too ) , proshippers , basic dni , epic fans who use it as a source , people who force religon onto others , roleplayers ( unless friends or I int first ) , fictkin doubles , vaggi or yumes of my non-sharing yumes</p>
