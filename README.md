@@ -31,7 +31,7 @@ _________
 
 <p align="center">non-sharing yumes ୨ৎ : vaggi ( hh ) , daenerys targaryen ( got ) , stella ( hb ) , nicholas d. wolfwood ( trigun ) , penelope ( epic ) , helen ( ptm ) , kendrawire ( hb ) , agathario ( marvel ) , vanny/vanessa ( fnaf ) , rayla ( tdp ) , korrasami ( tlok ) , rangshi ( atla ) , hyunmizi ( alnst ) , junko enoshima ( dr ) , hollytaya ( crk )</p>
 
-<p align="center">selective-sharing yumes ୨ৎ : lisa tepes ( cv ) , voxval ( hh ) , Stolas ( hb ) , circmes ( epic ) , the lady ( ln ) , zeezi ( hh ) , radiorose ( hh ) , eternal sugar cookie ( crk ) , cassunzel ( tangled ) , grantler ( jp ) , catradora ( she-ra ) , molly ( hh ) , celestia ludenberg ( dr ) , orphurydice ( ht ) , diavolo ( jjba ) , jolyne cujoh ( jjba )</p>
+<p align="center">selective-sharing yumes ୨ৎ : lisa tepes ( cv ) , voxval ( hh ) , stolas ( hb ) , circmes ( epic ) , the lady ( ln ) , zeezi ( hh ) , radiorose ( hh ) , eternal sugar cookie ( crk ) , cassunzel ( tangled ) , grantler ( jp ) , catradora ( she-ra ) , molly ( hh ) , celestia ludenberg ( dr ) , orphurydice ( ht ) , diavolo ( jjba ) , jolyne cujoh ( jjba )</p>
 
 <p align="center">sharing yumes ୨ৎ : velvette ( hh ) , ellie bixler ( edr ) , hera ( boz ) , electra ( boz ) , fizzozzie ( hb ) , aravos ( tdp ) , meljay ( arcane ) , caitvi ( arcane ) , la muerte ( tbol ) , raspberry cookie ( crk ) , goldenlily ( crk ) , vassago ( hb ) , monika ( ddlc ) , baxter ( hh )</p>
 
