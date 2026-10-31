@@ -1,5 +1,6 @@
 <p align="center">
- <img width="320" height="250" alt="image" src="https://github.com/user-attachments/assets/ebfad850-8447-45eb-9842-e43bc3c3325a" />
+<img width="222" height="190" alt="HJaUbncbsAA0n9_" src="https://github.com/user-attachments/assets/4bd7a584-7ca4-47e2-aebd-a545e13413c4" />
+
 </p>
 
 <p align="center">eclipso / val / charlotte</p>
