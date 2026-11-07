@@ -42,6 +42,6 @@ _________
 
 <p align="center">fictkins ( doubles dni ) ୨ৎ : charlie morningstar ( hh ) , valentino ( hh ) , asuka langley soryu ( nge ) , princess azula ( atla )</p>
 
-<p align="center">heavy kins ୨ৎ : octavia goetia ( hb ) , annabel lee ( nvmr ) , misa amane ( dn ) , barbiewire ( hb ) , hadestown persephone , Lute ( hh ) , pitaya dragon cookie ( crk ) , white lily cookie ( crk ) , ragatha ( tadc ) , ryland grace ( phm ) , mizi ( alnst ) , marceline ( at ) , verosika mayday ( hb ) , korra ( tlok ) , six ( ln ) , angel dust ( hh ) , pink diamond ( su ) , pearl ( su ) , affogato cookie ( crk )</p>
+<p align="center">heavy kins ୨ৎ : octavia goetia ( hb ) , annabel lee ( nvmr ) , misa amane ( dn ) , barbiewire ( hb ) , hadestown persephone , Lute ( hh ) , pitaya dragon cookie ( crk ) , white lily cookie ( crk ) , ragatha ( tadc ) , ryland grace ( phm ) , mizi ( alnst ) , marceline ( at ) , verosika mayday ( hb ) , korra ( tlok ) , six ( ln ) , angel dust ( hh ) , pink diamond ( su ) , pearl ( su ) , affogato cookie ( crk ) , rachel amber ( lis )</p>
 
 <p align="center">kins ୨ৎ : sua ( alnst ) , grell sutcliff ( bb ) , mitsuri kanroji ( kny ) , daki ( kny ) , eulalie ( nvmr ) , timekeeper cookie ( crk/crob ) , kyoshi ( atla ) , golden cheese cookie ( crk ) , ellie sattler ( jp ) , past vox ( hh ) , aubrey ( omori ) , emily ( hh ) , sypha belnades ( cv ) , sera ( hh ) , beezlebub ( hb ) , alone ( ln ) , millie ( hb ) , heather chandler ( heathers ) , wanda ( marvel ) , spinel ( su ) </p>
