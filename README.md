@@ -1,7 +1,9 @@
 <p align="center">
-<img width="222" height="190" alt="HJaUbncbsAA0n9_" src="https://github.com/user-attachments/assets/4bd7a584-7ca4-47e2-aebd-a545e13413c4" />
+<img width="222" height="190" alt="image" src="https://github.com/user-attachments/assets/bba02c45-3e26-48b0-83af-2543cadefd99"
+ />
 
 </p>
+
 
 <p align="center">eclipso / val / charlotte</p>
 
